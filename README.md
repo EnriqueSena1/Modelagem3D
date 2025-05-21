@@ -1,2 +1,0 @@
-# Modelagem3D
- 
